@@ -3,7 +3,7 @@
                     For 20 years, I wrote some great stuff, some not as great, 
                                 but most of the time, it was good enough. 
             
-            Paradiset is my <i>Nom de Guerre</i> -- my alias. 
+            Paradiset is my Nom de Guerre -- my alias. 
 
         During Covid-19, I had to leave my job and play video games, full-time. For
                 about a week or two, I was having the best time ever. Then boredom came knocking
