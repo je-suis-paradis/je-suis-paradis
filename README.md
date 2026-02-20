@@ -1,4 +1,4 @@
-    Oh, hi! I'm Pontus, but call me p-nut.
+    Oh, hi! Call me p-nut.
                                                     I used to be a copywriter. 
                     For 20 years, I wrote some great stuff, some not so great, 
                                 but most of the time, it was good enough. 
